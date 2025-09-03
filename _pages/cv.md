@@ -18,7 +18,7 @@ Academic employment
 Academic training
 ======
 * Ph.D in Mathematics, Dublin City University, 2025
-* BSc. in Financial Mathematics, Dublin City University, 2025
+* BSc. in Financial Mathematics, Dublin City University, 2021
 
 Professional experience
 ======
