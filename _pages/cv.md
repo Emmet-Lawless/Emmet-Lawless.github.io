@@ -15,7 +15,7 @@ Academic employment
   * Department of Mathematics, University of Michigan
 
 
-Education
+Academic training
 ======
 * Ph.D in Mathematics, Dublin City University, 2025
 * BSc. in Financial Mathematics, Dublin City University, 2025
